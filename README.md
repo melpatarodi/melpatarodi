@@ -1,4 +1,4 @@
-## 💻📱🌐💻📱🌐💻📱🌐💻📱🌐💻📱🌐💻📱🌐💻📱🌐💻📱🌐💻📱🌐💻
+## 💻🌿🌐💻🌿🌐💻🌿🌐💻🌿🌐💻🌿🌐💻🌿🌐💻🌿🌐💻🌿🌐💻🌿🌐💻
 👋 Hello! My name is Melody. 
 
 I'm an undergraduate student at the University of North Texas, and I am majoring in Computer Science with a minor in Statistics.
